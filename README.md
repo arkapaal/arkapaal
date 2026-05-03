@@ -4,7 +4,6 @@
   
 - 📫 How to reach me  mail :(arkapal2608@gmail.com)  insta:(https://www.instagram.com/arkagivesafcuk/)
 - 😄 Pronouns: him/he 
-- ⚡ Fun fact: I am funny 
 
 <!---
 arkapaal/arkapaal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
